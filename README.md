@@ -1,1 +1,1 @@
-# sequence-privacy-policy
+# simple-hiit-privacy-policy
