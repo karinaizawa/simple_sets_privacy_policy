@@ -1,1 +1,1 @@
-# simple-hiit-privacy-policy
+# simple-sets-privacy-policy
